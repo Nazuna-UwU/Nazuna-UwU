@@ -1,6 +1,6 @@
-Look at the stars.gif
+<img src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Look%20at%20the%20stars.gif" alt="stars.gif" width="275" /> 
 
-𝐻𝑖 𝑒𝑣𝑒𝑟𝑦𝑜𝑛𝑒 ~ Hi.gif
+𝐻𝑖 𝑒𝑣𝑒𝑟𝑦𝑜𝑛𝑒 ~ <img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Hi.gif" alt="Hi.gif" width="275" /> 
 
 
 𝑈𝑠𝑒𝑟𝑛𝑎𝑚𝑒:𝑁𝑎𝑧𝑢𝑛𝑎
@@ -13,9 +13,9 @@ Look at the stars.gif
 𝐹𝑎𝑣𝑜𝑢𝑟𝑖𝑡𝑒𝑆𝑜𝑛𝑔:𝑀𝑖𝑠𝑠 𝑌𝑜𝑢 𝑏𝑦 𝑜𝑙𝑖𝑣𝑒𝑟 𝑡𝑟𝑒𝑒
 𝑫𝒊𝒔𝒄𝒐𝒓𝒅:𝓝𝓪𝔃𝓾𝓷𝓪#9586
 
-Clin d'oeil.png a droite
+<img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Clin%20d'oeil.png" alt="Clin d'oeil.png" width="275" /> 
 
-Red.gif
+<img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Red.gif" alt="Red.gif" width="275" />
 
 𝐼 𝑎𝑚 𝑝𝑙𝑎𝑦𝑖𝑛𝑔 𝑜𝑛: 𝑃𝐶/𝑆𝑤𝑖𝑡𝑐ℎ
 𝐹𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑔𝑎𝑚𝑒𝑠:𝐷𝑎𝑛𝑔𝑎𝑛𝑟𝑜𝑛𝑝𝑎/𝐿𝑖𝑡𝑡𝑙𝑒 𝑛𝑖𝑔ℎ𝑡𝑚𝑎𝑟𝑒𝑠
@@ -23,13 +23,12 @@ Red.gif
 𝐼 𝑙𝑜𝑣𝑒 𝑠𝑒𝑟𝑖𝑒𝑠 𝑤𝑖𝑡ℎ 𝑖𝑛𝑣𝑒𝑠𝑡𝑖𝑔𝑎𝑡𝑖𝑜𝑛𝑠
 
 
-purple.gif
+<img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/purple.gif" alt="purple.gif" width="275" />
 
 
 𝕴'𝖒 𝖓𝖔𝖙 𝖆 𝖕𝖘𝖞𝖈𝖍𝖔𝖕𝖆𝖙𝖍 𝕴 𝖏𝖚𝖘𝖙 𝖜𝖆𝖓𝖙 𝖙𝖔 𝖘𝖔𝖑𝖛𝖊 𝖙𝖍𝖊 𝖒𝖚𝖗𝖉𝖊𝖗 , 𝕿𝖍𝖆𝖙'𝖘 𝖜𝖍𝖞 𝕴 𝖑𝖎𝖐𝖊 𝖒𝖞𝖘𝖙𝖊𝖗𝖎𝖊𝖘 𝖘𝖔 𝖒𝖚𝖈𝖍 :𝖘
 
-murder.gif
+<img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/murder.gif" alt="murder.gif" width="275" />
 
 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠 𝐚𝐧𝐝 𝐡𝐚𝐯𝐞 𝐚 𝐧𝐢𝐜𝐞 𝐝𝐚𝐲!
-fuck u.gif
-
+<img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/fuck%20u.gif" alt="fuck u.gif" width="275" />
