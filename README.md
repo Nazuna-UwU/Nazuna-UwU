@@ -15,7 +15,7 @@
 
 <img align="right" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Clin%20d'oeil.png" alt="Clin d'oeil.png" width="275" /> 
 
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Red.gif" alt="Red.gif" width="275" />
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Red.gif" alt="Red.gif" width="275" /><br>
 
 𝐼 𝑎𝑚 𝑝𝑙𝑎𝑦𝑖𝑛𝑔 𝑜𝑛: 𝑃𝐶/𝑆𝑤𝑖𝑡𝑐ℎ
 𝐹𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑔𝑎𝑚𝑒𝑠:𝐷𝑎𝑛𝑔𝑎𝑛𝑟𝑜𝑛𝑝𝑎/𝐿𝑖𝑡𝑡𝑙𝑒 𝑛𝑖𝑔ℎ𝑡𝑚𝑎𝑟𝑒𝑠
