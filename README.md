@@ -1,4 +1,4 @@
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Look%20at%20the%20stars.gif" alt="stars.gif" width="275" />
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Look%20at%20the%20stars.gif" alt="stars.gif" width="1275" height="220" />
 <br><br>
 
 𝐻𝑖 𝑒𝑣𝑒𝑟𝑦𝑜𝑛𝑒 ~ <img src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Hi.gif" alt="Hi.gif" width="275" /><br>
