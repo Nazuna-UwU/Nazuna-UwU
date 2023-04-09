@@ -1,4 +1,4 @@
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Look%20at%20the%20stars.gif" alt="stars.gif" width="275" />
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Look%20at%20the%20stars.gif" alt="stars.gif" width="1275" height="220" />
 <br><br>
 
 𝐻𝑖 𝑒𝑣𝑒𝑟𝑦𝑜𝑛𝑒 ~ <img src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Hi.gif" alt="Hi.gif" width="275" /><br>
@@ -15,7 +15,7 @@
 𝐹𝑎𝑣𝑜𝑢𝑟𝑖𝑡𝑒𝑆𝑜𝑛𝑔:𝑀𝑖𝑠𝑠 𝑌𝑜𝑢 𝑏𝑦 𝑜𝑙𝑖𝑣𝑒𝑟 𝑡𝑟𝑒𝑒<br>
 𝑫𝒊𝒔𝒄𝒐𝒓𝒅:𝓝𝓪𝔃𝓾𝓷𝓪#9586<br>
 
-<br><img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Red.gif" alt="Red.gif" width="275" /><br>
+<br><img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/Red.gif" alt="Red.gif" width="1275" /><br>
 
 <br>
 𝐼 𝑎𝑚 𝑝𝑙𝑎𝑦𝑖𝑛𝑔 𝑜𝑛: 𝑃𝐶/𝑆𝑤𝑖𝑡𝑐ℎ
@@ -25,12 +25,12 @@
 <br>
 
 
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/purple.gif" alt="purple.gif" width="275" /><br>
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/purple.gif" alt="purple.gif" width="1275" height="220" /><br>
 
 
 𝕴'𝖒 𝖓𝖔𝖙 𝖆 𝖕𝖘𝖞𝖈𝖍𝖔𝖕𝖆𝖙𝖍 𝕴 𝖏𝖚𝖘𝖙 𝖜𝖆𝖓𝖙 𝖙𝖔 𝖘𝖔𝖑𝖛𝖊 𝖙𝖍𝖊 𝖒𝖚𝖗𝖉𝖊𝖗 , 𝕿𝖍𝖆𝖙'𝖘 𝖜𝖍𝖞 𝕴 𝖑𝖎𝖐𝖊 𝖒𝖞𝖘𝖙𝖊𝖗𝖎𝖊𝖘 𝖘𝖔 𝖒𝖚𝖈𝖍 :𝖘<br>
 
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/murder.gif" alt="murder.gif" width="275" /><br>
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/murder.gif" alt="murder.gif" width="1275" height="500" /><br>
 
 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠 𝐚𝐧𝐝 𝐡𝐚𝐯𝐞 𝐚 𝐧𝐢𝐜𝐞 𝐝𝐚𝐲!<br>
-<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/fuck%20u.gif" alt="fuck u.gif" width="275" />
+<img align="center" src="https://raw.githubusercontent.com/Nazuna-UwU/Nazuna-UwU/main/img/fuck%20u.gif" alt="fuck u.gif" width="1275" height="500" />
